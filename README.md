@@ -1,1 +1,2 @@
-![ratinhos](https://gist.github.com/user-attachments/assets/b41165a6-16fe-47f1-9ca4-59156bcf1877)
+
+![ratinhos-dancarinos_3646](https://github.com/user-attachments/assets/b040926c-cb60-4150-813f-42bd9d90a857)
